@@ -15,3 +15,5 @@
 **Day 7: 23.07.21**: Work routine, abs
 
 **Day 8: 24.07.21**: Work routine, press ups, abs
+
+**Day 9: 25.07.21**: Work routine, glute med
