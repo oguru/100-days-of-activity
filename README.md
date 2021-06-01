@@ -21,3 +21,13 @@
 **Day 10: 26.07.21**: Work routine, abs, pull up
 
 **Day 11: 27.07.21**: Work routine, side abs, pull ups, glute med
+
+**Day 12: 28.07.21**: Work routine, side abs, pull ups, glute med
+
+**Day 13: 29.07.21**: Exercise
+
+**Day 14: 30.07.21**: Walking
+
+**Day 15: 31.07.21**: --
+
+**Day 15: 01.07.21**: Work routine, side abs, plank, pull ups
