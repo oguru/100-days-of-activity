@@ -31,3 +31,7 @@
 **Day 15: 31.07.21**: --
 
 **Day 15: 01.07.21**: Work routine, side abs, plank, pull ups
+
+**Day 16: 02.07.21**: Work routine, press ups
+
+**Day 17: 03.07.21**: Work routine, pull ups, lunge stretches
