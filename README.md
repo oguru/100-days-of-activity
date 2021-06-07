@@ -35,3 +35,9 @@
 **Day 16: 02.07.21**: Work routine, press ups
 
 **Day 17: 03.07.21**: Work routine, pull ups, lunge stretches
+
+**Day 18: 04.07.21**: Work routine, walking
+
+**Day 19: 05.07.21**: Cleaning and general activity (for party)
+
+**Day 20: 06.07.21**: Carrying heavy stuff, on feet all day
