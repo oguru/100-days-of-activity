@@ -41,3 +41,9 @@
 **Day 19: 05.07.21**: Cleaning and general activity (for party)
 
 **Day 20: 06.07.21**: Carrying heavy stuff, on feet all day
+
+**Day 21: 07.07.21**: Work routine, pull ups
+
+**Day 22: 08.07.21**: Work routine, pull ups, face pulls, glute med
+
+**Day 23: 09.07.21**: Work routine, pull ups, pressups, abs, glute med
